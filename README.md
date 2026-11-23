@@ -1,0 +1,2 @@
+# latihanpesawatsederhana
+LATIHAN PESAWAT SEDERHANA 
